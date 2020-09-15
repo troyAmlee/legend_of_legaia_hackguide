@@ -1,0 +1,1 @@
+# legend_of_legaia_hackguide
